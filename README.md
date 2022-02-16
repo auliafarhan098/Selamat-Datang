@@ -1,4 +1,4 @@
-# Hi there 👋 , I'm Aulia Farhan!
+# Hi everyone 👋 , I'm Aulia Farhan!
 I am a Student  
 
 ### Tools:
